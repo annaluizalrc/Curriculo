@@ -2,7 +2,7 @@
 
 # **ANNA LUIZA LEME RIBEIRO DE CASTRO**
 
- **RUA ITACARAMBI, 372 JD. ISMÊNIA - SÃO JOSÉ DOS CAMPOS, SP – 12.220-700 | (12) 99609-8055 | CASTROANNALUIZA7@GMAIL.COM | 23 ANOS.** 
+ **SÃO JOSÉ DOS CAMPOS, SP | (12) 99609-8055 | CASTROANNALUIZA7@GMAIL.COM | 23 ANOS.** 
  
  # **OBJETIVO** 
  Atuar em um ambiente que promova o conhecimento e que eu possa me desenvolver profissionalmente.
